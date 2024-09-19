@@ -1,4 +1,3 @@
-### Hey TechHeads 👋
 ### Here's an orthodox with realism 
 
 <!--
